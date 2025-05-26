@@ -89,7 +89,7 @@ Addsheet_Link_OT
 
 📞 ติดต่อ
 ถ้ามีคำถามหรืออยากแชร์ไอเดียเพิ่มเติม ทักมาคุยกันได้เลยนะคะ 😊
-พี่วี | Veerada Sittitoneang | Line:Nongvivi | Nung_vivi@hotmail.com
+วี | Veerada Sittitoneang | Line:Nongvivi | Nung_vivi@hotmail.com
 
 ---
 
